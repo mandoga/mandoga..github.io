@@ -1,1 +1,1 @@
-# mandoga..github.io
+# mandoga
